@@ -12,7 +12,7 @@ Se você precisa de uma ferramenta confiável para ativar diferentes versões do
 
 kms pico
 
-[kms pico download]([(https://github.com/KMSpico25/kmspico-ativador/) 
+[kms pico download](https://github.com/KMSpico25/kmspico-ativador/) 
 
  
 download kms pico  
